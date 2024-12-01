@@ -1,4 +1,4 @@
-# 🌟 Daniel Munyamakenga | Junior Elon Musk 🚀  
+# 🌟 Daniel MUNYAMAKENGA 
 Hi there! I'm Daniel, a passionate AgriTech engineer, programmer, and visionary aiming to revolutionize agriculture with technology.  
 
 ## 🛠️ Skills  
